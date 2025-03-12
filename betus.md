@@ -1,1 +1,1 @@
-Software Betus Minrcraft IA Generative by DevPao
+zSa6RQoqhMR8JBuj3LUB
